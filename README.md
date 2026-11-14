@@ -12,6 +12,13 @@ UP NEXT!! - Yes. I've been in the sonic area in ponytown for four years w/my old
 Save this one for last lol, here's what's really about me and my interests!! :
 
 Okay, sooo... I'm proudly Filipino! I'm from the Philippines 🇵🇭 - I speak Tagalog/Bicol/English, I'm usually a very goofy guy. and yes... I'M TRANS 🏳️‍⚧️, Also, any transphobes DNI! - I like seafood yum yum... what a chud am I, am I right, gng?? I eat houses. XD (friends know lmao) I love Shadow the hedgehog!! he's my KIN, and I wanna be emoalt but I can't because strict parents won't let me huhu.. LYF SUCKS!! #UrRuinin'MiLYFMUMM!! - afar from that, I'm a music addict, and he's I listen to music 24/7 - my music tastes are usually those romantic ones/rock/hard metal/lo-fi/jazz/and any catchy Filipino/English any nationality songs out there!! My current favs are : Line without a hook, Maria Count Me In, Scene Girl, Stitches, Next door, Call you mine, Pasilyo, Totoong tayo, and Ako ang bagyo !! <3 - feel free to suggest some songs to me, I wanna listen to some new songs! feel free to int w/me anytime! hope we get along you and I !! 😋😋😋✨
+
+🌷🌸🌷🌸
+    🌸🌷🌸🌷🌸
+ Λ🌷🌸🌷🌸🌷
+( ˘ ᵕ ˘🌷🌸🌷  Anyone wanna be w/me? ;3
+ヽ  つ＼     ／
+   UU   / 🎀 \⠀
 <!-- 
 **hottopicxz/hottopicxz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
