@@ -24,7 +24,7 @@ Okay, sooo... I'm proudly Filipino! I'm from the Philippines 🇵🇭 - I speak 
             ヽ  つ＼     ／
 
    
-  UU   / 🎀 \⠀
+   UU   / 🎀 \⠀
 <!-- 
 **hottopicxz/hottopicxz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
