@@ -21,7 +21,7 @@ Okay, sooo... I'm proudly Filipino! I'm from the Philippines 🇵🇭 - I speak 
  
 ( ˘ ᵕ ˘🌷🌸🌷
             𝙰𝚗𝚢𝚘𝚗𝚎 𝚠𝚊𝚗𝚗𝚊 𝚋𝚎 𝚠/𝚖𝚎? ;3
-ヽ  つ＼     ／
+            ヽ  つ＼     ／
 
    
   UU   / 🎀 \⠀
