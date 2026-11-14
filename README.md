@@ -15,16 +15,16 @@ Okay, sooo... I'm proudly Filipino! I'm from the Philippines 🇵🇭 - I speak 
 
 🌷🌸🌷🌸
 
-    🌸🌷🌸🌷🌸
+🌸🌷🌸🌷🌸
     
  Λ🌷🌸🌷🌸🌷
  
 ( ˘ ᵕ ˘🌷🌸🌷
-               Anyone wanna be w/me? ;3
+            𝙰𝚗𝚢𝚘𝚗𝚎 𝚠𝚊𝚗𝚗𝚊 𝚋𝚎 𝚠/𝚖𝚎? ;3
 ヽ  つ＼     ／
 
    
-   UU   / 🎀 \⠀
+  UU   / 🎀 \⠀
 <!-- 
 **hottopicxz/hottopicxz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
